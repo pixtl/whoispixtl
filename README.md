@@ -1,7 +1,7 @@
 Handshake Dry Goods
 ==========
 
-Fiat lux!
+@pixtl Instagram, Twitter
 
 
 ## Summary
