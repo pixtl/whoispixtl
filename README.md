@@ -1,7 +1,7 @@
 Handshake Dry Goods
 ==========
 
-@pixtl Instagram, Twitter
+@pixtl @chicalote
 
 
 ## Summary
