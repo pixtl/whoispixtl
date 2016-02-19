@@ -1,7 +1,7 @@
-Résumé of PIXTL aka Mary Sievert
+Handshake Dry Goods
 ==========
 
-pixtl aka m sievert, my github trial repo includes assorted pdfs and a resume, stamp: june 2013... fiat lux!
+Fiat lux!
 
 
 ## Summary
@@ -18,9 +18,9 @@ Marketing Consultancy, Consumer, B2B, Technology
 
  - Art Direction and photography
 
-**Founder Pixtl.com, Santa Barbara, CA**
+**Founder Handshake Dry Goods, Santa Barbara, CA**
 
- - Special projects emphasizing branding and storytelling
+ - Wearable Goods, Visual Artist
 
 ### Based in San Francisco/Silicon Valley/Santa Cruz 1980s&ndash;2009
 
@@ -39,7 +39,7 @@ Jun 2003  "The Art of Saving Oaks", The Filoli Center, Woodside, CA
 Feb 2004  "The Art of Saving Oaks",	The Arboretum at the University of California, Santa Cruz
 
 
-**Affiliations**
+**Activities**
 
  - UCSC Extension, Scientific Illustration Program, Advisory Board Member
  - Heritage Park Museum, City of Sunnyvale, Member, Exhibit Task Force Member
