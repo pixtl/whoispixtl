@@ -6,7 +6,7 @@ Handshake Dry Goods
 
 ## Summary
 
-Visual artist (photographer, graphic designer and illustrator)
+Mary Sievert
 
 ## Chronology
 
